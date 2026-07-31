@@ -12,3 +12,5 @@ https://moneybots.myshoppex.io/
 https://t.me/moneybotsdigital
 
 setup https://youtu.be/ESxOvW-IOg0
+
+https://www.youtube.com/@moneybots3186
